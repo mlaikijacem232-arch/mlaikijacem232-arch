@@ -88,5 +88,6 @@ Worked on branding & graphic content for:
 ---
 
 ## 📫 Contact Me
-📧 Email: **jmlaiki05@gmail.com**  
+📧 Email: **mlaiki.jacem232@gmail.com
+ | jmlaiki05@gmail.com**  
 💼 Open to internships, collaborations & freelance projects
